@@ -4,7 +4,7 @@
 - 💞️ My hobbies are reading, listening to music and writing
 - 📫 Languages I know: English, Russian, Azerbaijani, Turkish and a bit of German
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I have my own book published
+- ⚡ Fun fact: I have my own poetry book published
 
 <!---
 fatimaali09/fatimaali09 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
