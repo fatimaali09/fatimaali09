@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning new things
 - 🌱 I’m currently learning coging and programming
 - 💞️ My hobbies are reading, listening to music and writing
-- 📫 Languages I know: English, Russian, Azerbaijani, Turkish and a bit of German
+- 📫 Languages I know: English, Russian, Azerbaijani, Turkish, German and French
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I have my own poetry book published
 
